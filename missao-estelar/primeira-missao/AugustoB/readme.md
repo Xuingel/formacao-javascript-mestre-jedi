@@ -1,0 +1,1 @@
+tecnologia preferida: Computador, smartphone
